@@ -17,12 +17,12 @@ made by Danielle Mae V. Ticar
 
 **But most people call me Danielle**
 
- ### My Hobbies:
+ ## My Hobbies:
  - Script writing 
  - Drawing 
  - Reading (Manga, Manhwa, Manhua ETC.) 
  
- ### Facts about me: 
+ ## Facts about me: 
  - My birthday is September 23 2008
  - I'm an only child
  - And i really enjoy drinking beverages such as Coke, Pepsi, Coffee, and Iced Tea
