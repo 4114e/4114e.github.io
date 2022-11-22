@@ -36,8 +36,11 @@ made by Danielle Mae V. Ticar
 ## My Favorite Artists
 - Lady Gaga
 - Laufey 
+- CAS
 
-[The Fame](https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
-
+[The Fame Monster](https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
+[Everything I know about Love](https://open.spotify.com/album/0Ydm84ftyiWRGOIFkdl30L?si=lkvctejmSLSvAEYTLfNl0w)
+[Born this way](https://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
+[CAS](htps://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
  
  
