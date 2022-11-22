@@ -40,13 +40,17 @@ made by Danielle Mae V. Ticar
 
 > My Favorite Albums
 
-[The Fame Monster](https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
+[The Fame Monster]
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/6rePArBMb5nLWEaY9aQqL4?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
-[Born this way](https://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
+[Born this way]
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/6LY3AerY6KNGOPsNPL63Kk?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
-[ CAS ](https://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
+[ CAS ]
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/2mxFsS5yylSTHNivV53HoA?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
  
-[Affection](https://open.spotify.com/album/4zBZX3bPIQkJMY0CaTGFKh?si=rTrfuWhSRXqX9W0367u0rA)
+[Affection]
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/4zBZX3bPIQkJMY0CaTGFKh?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
  
