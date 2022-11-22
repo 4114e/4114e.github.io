@@ -37,7 +37,7 @@ made by Danielle Mae V. Ticar
 - Lady Gaga
 - Laufey 
 
-[The Fame] (https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
+[The Fame](https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
 
  
  
