@@ -39,12 +39,14 @@ made by Danielle Mae V. Ticar
 - CAS
 
 > My Favorite Albums
+
 [The Fame Monster](https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
 
 
 [Born this way](https://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
 
 
-[CAS](htps://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
+[ CAS ](https://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
  
+[Affection](https://open.spotify.com/album/4zBZX3bPIQkJMY0CaTGFKh?si=rTrfuWhSRXqX9W0367u0rA)
  
