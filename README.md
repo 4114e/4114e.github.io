@@ -29,7 +29,7 @@ made by Danielle Mae V. Ticar
  - I like watching Dark Fantasy and Romcom Anime
  - I like watching Historical Drama and Regency romance series
  
- > My Insipirations in life
+> My Insipirations in life
  - My dog
  - Money
  - Myself
