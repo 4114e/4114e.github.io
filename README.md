@@ -17,30 +17,34 @@ made by Danielle Mae V. Ticar
 
 **But most people call me Danielle**
 
- ## My Hobbies:
+ > My Hobbies:
  - Script writing 
  - Drawing 
  - Reading (Manga, Manhwa, Manhua ETC.) 
  
- ## Facts about me: 
+ > Facts about me: 
  - My birthday is September 23 2008
  - I'm an only child
  - And i really enjoy drinking beverages such as Coke, Pepsi, Coffee, and Iced Tea
  - I like watching Dark Fantasy and Romcom Anime
  - I like watching Historical Drama and Regency romance series
- ## My Insipirations in life
+ > My Insipirations in life
  - My dog
  - Money
  - Myself
  - Wealth
-## My Favorite Artists
+> My Favorite Artists
 - Lady Gaga
 - Laufey 
 - CAS
 
+> My Favorite Albums
 [The Fame Monster](https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ)
-[Everything I know about Love](https://open.spotify.com/album/0Ydm84ftyiWRGOIFkdl30L?si=lkvctejmSLSvAEYTLfNl0w)
+
+
 [Born this way](https://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
+
+
 [CAS](htps://open.spotify.com/album/6LY3AerY6KNGOPsNPL63Kk?si=S1cHO4vpS5KrHmo8QS5Jdg)
  
  
