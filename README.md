@@ -28,6 +28,16 @@ made by Danielle Mae V. Ticar
  - And i really enjoy drinking beverages such as Coke, Pepsi, Coffee, and Iced Tea
  - I like watching Dark Fantasy and Romcom Anime
  - I like watching Historical Drama and Regency romance series
- 
+ ## My Insipirations in life
+ - My dog
+ - Money
+ - Myself
+ - Wealth
+## My Favorite Artists
+- Lady Gaga
+- Laufey 
+
+[The Fame] (https://open.spotify.com/album/1qwlxZTNLe1jq3b0iidlue?si=NxrSuK8TTruiAJ_xoqG3AQ]
+
  
  
