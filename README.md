@@ -34,6 +34,7 @@ made by Danielle Mae V. Ticar
  - Money
  - Myself
  - Wealth
+ 
 > My Favorite Artists
 - Lady Gaga
 - Laufey 
