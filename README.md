@@ -36,9 +36,9 @@ made by Danielle Mae V. Ticar
  - Wealth
  
 > My Favorite Artists
-- Lady Gaga
-- Laufey 
-- CAS
+- [Lady Gaga](https://open.spotify.com/artist/1HY2Jd0NmPuamShAr6KMms?si=wZjelMBQQyehjbQlb82L9g)
+- [Laufey](https://open.spotify.com/artist/7gW0r5CkdEUMm42w9XpyZO?si=uoN-aObxRam1ayoJjl2icA) 
+- [CAS](https://open.spotify.com/artist/1QAJqy2dA3ihHBFIHRphZj?si=jbiaH13yQpKP5i31gBbY6g)
 
 > My Favorite Albums
 
