@@ -13,7 +13,7 @@ made by Danielle Mae V. Ticar
 - Mae
 - Elle
 - Danielle Mae
-- Andi (Personal Favorite)
+- Andy (Personal Favorite)
 
 **But most people call me Danielle**
 
