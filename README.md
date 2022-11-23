@@ -54,3 +54,8 @@ Born this way
 Affection
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/4zBZX3bPIQkJMY0CaTGFKh?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
  
+ 
+> Socials:
+ - [Facebook](https://youtu.be/dQw4w9WgXcQ)
+ - [Instagram](https://youtu.be/39Un3-O5hDg)
+ 
